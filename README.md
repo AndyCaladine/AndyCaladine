@@ -28,7 +28,7 @@ Professional Experience as a Systems and Data Manager
 In addition to my academic pursuits, I bring valuable professional experience as a Systems and Data Manager. Here's a glimpse into my professional journey:
 
 Professional Background
-Systems and Data Manager | [Your Company Name] (2019 - Present)
+Systems and Data Manager | [ICAEW] (2019 - Present)
 As an Experienced Systems and Data Manager, I have successfully overseen the day-to-day operations of dynamic teams, demonstrating a proven track record in driving transformational initiatives. Notable projects include leading the Evolved ACA and Business System Transformation initiatives.
 
 Key Achievements and Responsibilities:
